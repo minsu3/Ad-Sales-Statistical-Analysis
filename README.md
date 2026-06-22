@@ -1,1 +1,1 @@
-![Document preview](./KIM-MINSU-N1429016-Communication of Results.png)
+![Document preview](./Communication%20of%20Results.png)
