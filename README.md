@@ -1,0 +1,1 @@
+![Document preview](/Users/minsukim/github/StatsDataAnalysis/KIM-MINSU-N1429016-Communication of Results.png/)
